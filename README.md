@@ -8,3 +8,5 @@ Es ist wichtig zu wissen, dass das CDM für Bauarbeiten gilt und nicht nur für 
 Konstruktion, Änderung, Umbau, Ausstattung, Inbetriebnahme, Renovierung, Reparatur, Wartung, Replikation oder sonstige Wartung (einschließlich Reinigung, bei der Wasser oder Schleifmittel unter hohem Druck verwendet werden oder ätzende oder giftige Substanzen verwendet werden), Außerbetriebnahme, Abbau oder Abriss von Bauwerken;
 Beseitigung der Struktur oder von Produkten oder Abfällen, die beim Abbruch oder Abbau der Struktur oder beim Abbau vorgefertigter Elemente entstehen, die unmittelbar vor einem solchen Abriss eine solche Struktur bilden;
 Installation, Inbetriebnahme, Wartung, Reparatur oder Entfernung der mechanischen, elektrischen, Gas-, Druckluft-, Hydraulik-, Telekommunikations-, Computer- oder ähnlichen Dienstleistungen sind normalerweise innerhalb oder in der Struktur festgelegt.
+https://superhause.de/spanndecken/essen/
+https://superhause.de/spanndecken/dusseldorf/
